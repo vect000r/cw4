@@ -1,0 +1,2 @@
+Rozwiązanie: BARTŁOMIEJ GALEK
+
